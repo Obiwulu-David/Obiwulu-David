@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Obiwulu-David
+- 👀 I’m interested in tech, data analytics, sports and music
+- 🌱 I’m currently learning data analytics @vephlaUni on twitter
+- 💞️ I’m looking to collaborate on any data related project
+- 📫 How to reach me on twitter @oluwayeaka
+- 😄 Pronouns: He and I'm very straight
+- ⚡ Fun fact: I believe techies are smart and beautiful and it makes me want to end up with one
+- I hope to impact in young folk with interest in tech but has background
